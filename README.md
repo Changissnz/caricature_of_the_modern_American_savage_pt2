@@ -73,8 +73,8 @@ those specifics. Is Amazon's displacement of Wal-Mart in retail a clear display 
 antagonism, although said antagonistic displacement could merely be a byproduct of their 
 success? Clearly a product of modern American savages? 
 
-Enough has been written by many in the US and abroad about "those rich people" to be evidential 
-of class-based antipathy (and then somewhere along the lines, Russia and China get mentioned, 
+Enough has been written by many in the US and abroad about "those rich people" for there to be 
+evidence of class-based antipathy (and then somewhere along the lines, Russia and China get mentioned, 
 and then where there was open discourse, there are now crickets). Shifting topics to the other 
 end of the spectrum is the middle class. The middle class, benevolent because of their 
 modest share of resources yet maybe just as prone to becoming if not already being modern 
