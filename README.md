@@ -31,10 +31,10 @@ The economic issues facing the US today can be persuasively argued as compounded
 issues. Problems are strangely worded in contradicting press pieces. For example, 
 there is a labor shortage but there are also not that many jobs available. Another 
 example here: there is an "industrial revolution" going on, but "we" must get back 
-to the basics and "we" must remind ourselves of our roots. The "plutocrats" are 
+to the basics and "we" must remind "ourselves" of our roots. The "plutocrats" are 
 trying to bury common citizens into debt, so "we" should really be wary of the 
 "educated" types and "foreigner" types, those types that are trying to brainwash 
-"us" into schlonging ourselves and giving away our belongings to foreign nations. 
+"us" into schlonging "ourselves" and giving away "our" belongings to foreign nations. 
 "We" have lost ourselves, but instead of tending to ourselves as individuals, 
 "we" should organize around common causes so as not to be deprived of capital and 
 rights should "we" ever be on the wrong side of these power plays. These are class 
