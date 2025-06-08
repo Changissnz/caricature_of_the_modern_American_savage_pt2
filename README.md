@@ -50,8 +50,8 @@ from the same cloth. Jeff Bezos, for instance, was a discorporatist when he foun
 Amazon. The reason why enterprises such as Wal-Mart and Microsoft did not immediately 
 buy out Jeff Bezos is not that simple to state, although the factors of miscategorization 
 of Bezos by both Microsoft and Wal-Mart on what Amazon really was cannot be discounted. 
-What was Amazon? It was not a Windows copycat, it was not a proprietary version of 
-Linux, and it did not have any infrastructure that could match Wal-Mart hardware, all 
+What was Amazon? It was not a Windows copycat. It was not a proprietary version of 
+Linux. And it did not have any infrastructure that could match Wal-Mart hardware, all 
 of those smooth and polished products that one could not only touch but own with just 
 the right amount of material capital. From a perspective, Wal-Mart was stuck in the 
 Japanese perspective of production; the Japanese were computer hardware industrialists 
