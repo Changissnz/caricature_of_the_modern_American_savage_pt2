@@ -125,6 +125,6 @@ Besides from business interests, the two-party political system of the US is cri
 modern American savages. Propensities of differing qualities between the two parties can be placed into templates 
 to rationalize about modern American savages. Human beings, after all, are creatures not only of habit but also of 
 identity. Maybe that is the key to understanding modern American savages, to understand all there is know about 
-American business interests and the American two-party system, as well as of psychology from inheritance and 
-conditioning. Lawfare, economic wars, violent wars, information wars. The price of the US staying involved is 
+American business interests and the American two-party political system, as well as of psychology from inheritance 
+and conditioning. Lawfare, economic wars, violent wars, information wars. The price of the US staying involved is 
 that the better modern American savages are put to work doing these things. And there is no better alternative. 
